@@ -12,3 +12,5 @@ I have a lot of things want to share but I start to feel fungry when I typing no
 So maybe next time, after lunch and after siesta?
 
 A bientôt.
+
+![Daily life when studing in Japan](https://github.com/gtb-2022-zhang-lan/test-for-exercise-selfpre/blob/main/selfpre-a.JPG)
